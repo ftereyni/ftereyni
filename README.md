@@ -8,7 +8,7 @@ jj- 👋 Hi, I’m @ftereyni
 wer
 <!---sdfdfgsdf
 ftereyni/ftereyni is a ✨ special ✨ repository because its `README.md` (thi65s file) appears on your GitHub profile.45
-You can click the Preview link to take a look at your changes.
+You can click the Preview link to take a look at your uyuy.
 --->
 gsf
 fh
