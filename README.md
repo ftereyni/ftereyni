@@ -4,7 +4,7 @@ jj- 👋 Hi, I’m @ftereyni
 - 💞️ I’m looking to collaborate on ...131
 - 📫 How to reach me ...543
 - 😄 Pronouns: ...5sdf
-- ⚡ Fun fact: ...sdf
+- ⚡ Fun fact: ...sdfsdf
 werdsf87
 <!---sdfdfgsdfsdfw
 ftereyni/ftereyni is a ✨ special ✨ repository becausgere its `README.md` (thi65s file) appears on your GitHub profile.45
