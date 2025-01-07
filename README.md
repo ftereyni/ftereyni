@@ -3,7 +3,7 @@ jj- 👋 Hi, I’m @ftereyni
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...131
 - 📫 How to reach me ...543
-- 😄 Pronouns: ...5sdf
+- 😄 Pronouns: ...5sdf152
 - ⚡ Fun fact: ...sdfsdf
 werdsf87zc
 <!---sdfdfgsdfsdfw
