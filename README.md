@@ -1,7 +1,7 @@
 jj- 👋 Hi, I’m @ftereyni
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...131
+- 💞️ I’m looking to collaborate on ...131yju
 - 📫 How to reach me ...543
 - 😄 Pronouns: ...5sdf15277
 - ⚡ Fun fact: ...sdfsdf
