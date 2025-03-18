@@ -3,7 +3,7 @@ hngjj- 👋 Hi, I’m @ftereyni
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...131yjubgdscxhggf
 - 📫 How to reach me ...543xvcbgu,jhvbmdfvvdfbgfgrfdbdfc
-- 😄 Pronouns: ...5sdf15277sdfrwqrwhmjh
+- 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcx
 - ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghg
 werdsf87zc693sdfvbvvsdfdf
 <!---sdfdfgsdfsdfw66363hng2222hjmhjmqewewr
