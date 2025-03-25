@@ -2,7 +2,7 @@ shngjj- 👋 Hi, I’m @ftereyni
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...131yjubgdscxhggf
-- 📫 How to reach me ...543xvcbgu,jhvbmdfvvdfbgfgrfdbdfcrfrswq
+- 📫 How to reach me ...543xvcbgu,jhvbmdfvvdfbgfgrfdbdfcrfrswqffff
 - 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcxnhh
 - ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghg
 werdsf87zc693sdfvbvvsdfdf
