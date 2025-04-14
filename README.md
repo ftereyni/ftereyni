@@ -1,7 +1,7 @@
-44shngjj- 👋 Hi, I’m @ftereyni
+hn44shngjj- 👋 Hi, I’m @ftereyni
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ghmmhg
-- 💞️ I’m looking to collaborate on ...131yjubgdscxhgg
+- 💞️ I’m looking to collaborate on ...131yjubgdscxhgghn
 - 📫 How to reach me ...543xvcbgu,yteee8526
 - 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcxnh
 - ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghgfgh54
