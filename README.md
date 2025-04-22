@@ -4,7 +4,7 @@ hn44shngjj- 👋 Hi, I’m @ftereyni
 - 💞️ I’m looking to collaborate on ...131yjubgdscxhgghn
 - 📫 How to reach me ...543xvcbgu,yteee8526bgc
 - 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcxnh
-- ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghgfgh54gerrgeerg
+- ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghgfgh54gerrgeergfsdsd
 werdsf87zc693sdfvbvvsdfdf
 <!---sdfdfgsdfsdfw66363hng2222hjmhjmqewewrbdfdfrgttg
 ftereyni/ftereyni is a ✨ special ✨ repository becausgere its `README.md` (thi65s file) appears on your GitHub promghhgmfile.45bgxssdfgxbgh,j
