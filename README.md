@@ -3,7 +3,7 @@ fdbfdbfdhn44shngjj- 👋 Hi, I’m @ftereyni
 - 🌱 I’m currently learning ...ghmmhg
 - 💞️ I’m looking to collaborate on ...131yjubgdscxhgghnioi,,i,iwrweyuiyuyhghghg
 - 📫 How to reach me ...543xvcbgu,yteee8526bgcrfrrffrcvbccxcxcx
-- 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcxnh
+- 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcxnhrwewew
 - ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghgfgh54gerrgeergfsdsdjhmhjm
 werdsf87zc693sdfvbvvsdfdfewfdsegrregerervfddddsddfbfdfbdtrreee
 <!---sdfdfgsdfsdfw66363hng2222hjmhjmqewewrbdfdffgjhgffggf
