@@ -1,7 +1,7 @@
 fdbfdbfdhn44shngjj- 👋 Hi, I’m @ftereyni
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ghmmhg
-- 💞️ I’m looking to collaborate on ...131yjubgdscxhgghnioi,,i,iwrweyuiyuyhghghg
+- 💞️ I’m looking to collaborate on ...131yjubgdscxhgghnioi,,i,iwrweyuiyuyhghghgdbffvv
 - 📫 How to reach me ...543xvcbgu,yteee8526bgcrfrrffrcvbccxcxcx
 - 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcxnhrwewewhhfffff
 - ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghgfgh54gerrgeergfsdsdjhmhjm
