@@ -5,8 +5,8 @@ sffdbfdbfdhn44shngjj- 👋 Hi, I’m @ftereyni
 - 📫 How to reach me ...543xvcbgu,yteee8526bgcrfrrffrcvbccxcxcx1152dfgdgffukihjjhdfdfghvbccv
 - 😄 Pronouns: ...5sdf15277sdfrwqrwhmjhxvcxnhrwewewhhffffffdfferg
 - ⚡ Fun fact: ...sdfsdfdsffsdfghhqwehtytywerwehnghgfgh54gerrgeergfsdsdjhmhjmergjmhhsgrfd
-werdsf87zc693sdfvbvvsdfdfewfdsegrregerervfddddsddfbfdfbdtrreeetgrgtrrtghhhgggpears on your GitHub promghhgmfile.45bgxssdfgxbgh,j
+werdsf87zc693sdfvbvvsdfdfewfdsegrregerervfddddsddfbfdfbdtrreeetgrgtrrtghhhgggpears on your GitHub promghhgmfile.45bgxssdmfgxbgh,j
 You can click the Preview link to take a look at your uyuy.5jmjmjnbbnbnsdds
---->
+--->vbmbmbvm
 gsf5122
 fh4cvbcv
